@@ -1,0 +1,2 @@
+# mofh-templates
+MyOwnFreeHost Templates
