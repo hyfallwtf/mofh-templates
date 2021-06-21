@@ -1,2 +1,7 @@
-# mofh-templates
-MyOwnFreeHost Templates
+#coming soon
+
+myownfreehost templates. 
+
+free & paid.
+
+yeah thats about it.
