@@ -1,4 +1,4 @@
-comming soon 
+coming soon 
 
 myownfreehost templates. 
 
